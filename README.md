@@ -14,6 +14,7 @@ Kahaduwa, H., Pathirana, D., Arachchi, P.L., Dias, V., Ranathunga, S. and Kohomb
 
 If you need more clarifications please contact through following email addresses.
 
+Surangika - surangika@cse.mrt.ac.lk
 Pathum - pathum.12@cse.mrt.ac.lk 
 Dilshan -pathirana.12@cse.mrt.ac.lk 
 Hasangi - hasangik.12@cse.mrt.ac.lk
